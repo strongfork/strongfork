@@ -5,8 +5,7 @@
  ![image](https://github.com/user-attachments/assets/7c5978b9-df26-47fd-9618-e6f905ebb28b)
 
   
- ![image](https://github.com/user-attachments/assets/664cff1b-72e7-4d94-9610-74587a4ea4d6)
- [art by @vick_shimmer on X]
+
 
 
 <p align=center> Hey there! I'm Rhys
