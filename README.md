@@ -78,4 +78,6 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 ![d99mjwl-b16df301-53af-4194-90b5-17aa23822690](https://github.com/user-attachments/assets/becbed17-4fba-4189-bed6-fb0da9e29248)
 ![d1glzfx-c3526ba4-721d-4550-9115-3e245f15bb63](https://github.com/user-attachments/assets/cf8965b4-df9b-4037-8757-e1a27d9f784e)
 ![d363xqt-21358354-320d-43f7-9942-e4e09c20cc52](https://github.com/user-attachments/assets/a66d8d2c-1e5b-46e1-82a6-eea94d3a5035)
+<img width="99" height="56" alt="opstamp" src="https://github.com/user-attachments/assets/3388d322-cc4e-4f40-a6b9-5581e6fb370c" />
+
 
