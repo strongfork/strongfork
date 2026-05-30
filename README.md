@@ -9,7 +9,7 @@
 
 
 <p align=center> Hey there! I'm Rhys
-<p align=center> I'm 23 - He/Him 
+<p align=center> I'm 23 - He/Him - T-masc+Bisexual
 <p align=center> I like a ton of shit so if you wanna know more about me, my links are on here! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
 <p align=center> I'm extroverted and friendly but (guilty as charged) pretty mean because I generally don't gaf so if you can get past that, I'm chill (I promise). I'm usually always with my boyfriend or my friends and I don't play about them so please respect them. Basically, absolutely int with me!
   
