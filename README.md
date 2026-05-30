@@ -1,4 +1,3 @@
-<img width="99" height="56" alt="opstamp2" src="https://github.com/user-attachments/assets/8fb10cfe-314e-4a07-870a-d7ff7bb7b864" />
  Do I bite? Maybe. Should you find out? Absolutely. 
 
  ![image](https://github.com/user-attachments/assets/7c5978b9-df26-47fd-9618-e6f905ebb28b)
@@ -81,6 +80,8 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 ![d363xqt-21358354-320d-43f7-9942-e4e09c20cc52](https://github.com/user-attachments/assets/a66d8d2c-1e5b-46e1-82a6-eea94d3a5035)
 <img width="99" height="56" alt="opstamp" src="https://github.com/user-attachments/assets/3388d322-cc4e-4f40-a6b9-5581e6fb370c" />
 <img width="99" height="56" alt="lawstamp" src="https://github.com/user-attachments/assets/04943c31-aedf-4f52-b270-01362a1adb6a" />
-<img width="99" height="56" alt="lawstamp" src="https://github.com/user-attachments/assets/376bc4a2-3c8c-4057-b167-95b593df8537" />
+<img width="99" height="56" alt="opstamp2" src="https://github.com/user-attachments/assets/aa2babea-b568-493d-8263-c55918f0ea97" />
+<img width="496" height="253" alt="zanka stamp" src="https://github.com/user-attachments/assets/42dbc887-f3dc-468a-93cf-165964c275ec" />
+
 
 
