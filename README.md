@@ -1,5 +1,7 @@
  Do I bite? Maybe. Should you find out? Absolutely. 
 
+ This is still a WIP so uhh bear with me !
+
  ![image](https://github.com/user-attachments/assets/7c5978b9-df26-47fd-9618-e6f905ebb28b)
 
   
