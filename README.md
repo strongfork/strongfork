@@ -9,9 +9,9 @@
 
 
 <p align=center> Hey there! I'm Rhys
-<p align=center> I'm 24 - He/Him - T-masc+Bisexual
+<p align=center> I'm 24 - He/Him - Swedish/English - T-masc+Bisexual
 <p align=center> I like a ton of shit so if you wanna know more about me, my links are on here! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
-<p align=center> I'm extroverted and friendly but (guilty as charged) pretty mean because I generally don't gaf so if you can get past that, I'm chill (I promise). I'm usually always with my boyfriend or my friends and I don't play about them so please respect them. Basically, absolutely int with me!
+<p align=center> I'm mostly friendly just a little freak so if you can get past that, I'm chill (I promise). I'm usually always with my boyfriend or my friends and I don't play about them so please respect them. Basically, absolutely int with me!
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
 ![da0swma-644b6ffe-d3f9-4aa9-9ac2-bb5212525e2c](https://github.com/user-attachments/assets/fae60ed8-c9ad-49cc-943f-1c8398c1321a)
