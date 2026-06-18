@@ -1,8 +1,9 @@
  Do I bite? Maybe. Should you find out? Absolutely. 
 
-  Inside Our Home - 311 
-  1:00 ─〇───── 3:40
-  ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
+                    ılı.lıllılı.ıllı.
+                  ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ ♫
+             🇩​🇴​ 🇮​ 🇼​🇦​🇳​🇳​🇦​ 🇰​🇳​🇴​🇼​?
+        0:58 ──♡───── 3:47
 
  This is still a WIP so uhh bear with me !
 
