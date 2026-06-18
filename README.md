@@ -10,7 +10,7 @@
 
 <p align=center> Hey there! I'm Rhys
 <p align=center> I'm 24 - He/Him - Swedish/English - T-masc+Bisexual
-<p align=center> I like a ton of shit so if you wanna know more about me, my links are on here! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
+<p align=center> I like a ton of shit so if you wanna know more about me, ask because my links are being redone rn! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
 <p align=center> I'm mostly friendly just generally don't give a shit, especially about cringe culture so if you can get past that, I'm chill. I'm usually always with my boyfriend or my friends [please respect them]. Basically, absolutely int with me!
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
