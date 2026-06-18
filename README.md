@@ -1,8 +1,8 @@
  Do I bite? Maybe. Should you find out? Absolutely. 
 
-       » [Inside Our Home - 311] «
- 1:00 ─〇───── 3:40
-     ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
+>> Inside Our Home - 311 <<
+   1:00 ─〇───── 3:40
+  ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
  This is still a WIP so uhh bear with me !
 
