@@ -20,6 +20,7 @@
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
 ![da0swma-644b6ffe-d3f9-4aa9-9ac2-bb5212525e2c](https://github.com/user-attachments/assets/fae60ed8-c9ad-49cc-943f-1c8398c1321a)
+<img width="99" height="56" alt="sucktalking" src="https://github.com/user-attachments/assets/12c201b2-804a-4760-9bca-393bdc62bbe6" />
 ![d7tdpyp-7fb36620-7aea-448c-83e3-40ef3c57f808](https://github.com/user-attachments/assets/3e10c9b8-b43d-414f-9909-8f2a7cf383f2)
 ![dah84z5-d63560d3-834e-4c1a-a71e-4c9d250f3682](https://github.com/user-attachments/assets/f7148a43-d110-4583-8bc7-634f6c870c9f)
 ![104_by_ahoy_des_datb4xc-fullview](https://github.com/user-attachments/assets/01aa25e6-d2c3-49cf-a083-1412eee21430)
