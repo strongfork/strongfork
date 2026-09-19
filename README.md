@@ -1,8 +1,8 @@
  Do I bite? Maybe. Should you find out? Absolutely. 
  
            ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ ♫
-       Inside Our Home - 311
-        1:00 ──♡───── 3:40
+       Beautiful Disaster - 311
+        1:06 ──♡───── 3:58
 
  This is still a WIP so uhh bear with me !
 
@@ -15,7 +15,7 @@
 <p align=center> Hey there! I'm Rhys
 <p align=center> I'm 24 - He/Him - Swedish/English - T-masc+Bisexual
 <p align=center> hcDID system+BPD+ADHD and if you have a problem with any of this I fear I don't care!
-<p align=center> I like a ton of shit so if you wanna know more about me, ask because my links are being redone rn! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
+<p align=center> I like a ton of shit so if you wanna know more about me, ask because my links are being redone rn, minus my strawpage so leave a message or draw me smth! I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
 <p align=center> I'm mostly friendly just generally don't give a shit, especially about cringe culture so if you can get past that, I'm chill. I'm usually always with my boyfriend or my friends [please respect them]. Basically, absolutely int with me!
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
