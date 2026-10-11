@@ -86,6 +86,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 <img width="99" height="56" alt="lawstamp2" src="https://github.com/user-attachments/assets/133b987d-528f-4622-85ee-42f9755d7feb" />
 <img width="99" height="56" alt="122874021_p0_master1200" src="https://github.com/user-attachments/assets/8faedd57-38d2-4fa2-b34d-b9d1c7837e37" />
 <img width="99" height="56" alt="lawsan2" src="https://github.com/user-attachments/assets/483a9bcf-1da4-46ff-81e3-2ed8061c4d69" />
+https://64.media.tumblr.com/327b719fac3d4c5a030304eab4733b8b/b845af70be287720-bd/s100x200/6c92624ff26ee2f1e7bc22b4b773140ad38aab85.pnj
 <img width="99" height="56" alt="gachstamp" src="https://github.com/user-attachments/assets/7c866c07-6620-46cc-8c86-607cecdf6bb1" />
 <img width="99" height="56" alt="zanka stamp" src="https://github.com/user-attachments/assets/42dbc887-f3dc-468a-93cf-165964c275ec" />
 <img width="99" height="56" alt="zanka1" src="https://github.com/user-attachments/assets/42930e0c-42f2-4c5f-90c2-eb89c5435739" />
