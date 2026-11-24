@@ -13,7 +13,7 @@ This is sort've still a WIP so uhh bear with me !
 <p align=center> HC-DID system+BPD+ADHD and if you have a problem with any of this I fear I don't care!
 <p align=center> I like a ton of shit so if you wanna know more about me, ask because my links are being redone rn! Strawpage is also off until I figure things out. I'm going to keep this simple for the most part until I can flesh it out more so just hang tight. 
 <p align=center> I'm mostly friendly just generally don't give a shit, especially about cringe culture so if you can get past that, I'm chill. I'm usually always with my boyfriend or my friends [please respect them]. Basically, absolutely int with me if ya want!
-<p align=center> I fear this should be common sense, but apparently it isn't so to avoid this in the future I want to say that just because my partner and I have matching pfps, skins, or happen to share kins from the same source does NOT mean we ship said characters. We may be a couple irl, but that is it. A few simple clicks into my page and you can see I am anti-proship, thank you for reading! 
+<p align=center> I fear this should be common sense, but apparently it isn't so to avoid this in the future because it's happened more than once. I want to say that just because my partner and I have matching pfps, skins, or happen to share kins from the same source media does NOT mean we ship said characters. We may be a couple irl, but that is it. I am very anti-proship, thank you for reading! 
 
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
