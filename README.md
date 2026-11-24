@@ -53,6 +53,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 ![db4eoft-d57c6af2-9bde-4369-b95f-2ab2e307be81](https://github.com/user-attachments/assets/dccb884a-b2cb-40cc-955a-10e78e40ecfb)
 ![silent_hill_stamp_by_crvyons_dh07afe-fullview](https://github.com/user-attachments/assets/071c98ff-6505-452e-870c-b4630b84c502)
 ![djmrisz-34444f08-6711-4860-9b9e-ae48092cfc50](https://github.com/user-attachments/assets/88096f36-4e23-4f2c-9b8f-5154188f92f8)
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/1a8505e3-71b8-4147-9d11-5dfe2f53a108" />
 ![bendy___alice_ship_stamp_by_transfeminine_def5o6c-fullview](https://github.com/user-attachments/assets/d02a633a-e9fc-4397-ab73-e996a323ca17)
 ![garten_of_banban_stamp_by_presidentpoppy_dg2if7f-fullview](https://github.com/user-attachments/assets/d0a5708c-f30c-4f89-bd8e-ab959c765bf0)
 ![secure_contain_protect__by_iamhaden_d5mgrmf-fullview](https://github.com/user-attachments/assets/cf783842-fe98-4a8a-b691-87d66e2130be)
