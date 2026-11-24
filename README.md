@@ -1,4 +1,3 @@
-!![Profile Views](https://github.com/strongfork/github-profile-views-counter.git)]
  Do I bite? Maybe. Should you find out? Absolutely. 
  
            ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ ♫
