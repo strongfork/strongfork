@@ -1,9 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=strongfork)
+
  Do I bite? Maybe. Should you find out? Absolutely. 
  
-           ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ ♫
-       Beautiful Disaster - 311
-        1:06 ──♡───── 3:58
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=j2m6prt4xwsitvdrdakba3ob6&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
  This is still a WIP so uhh bear with me !
 
