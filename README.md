@@ -98,5 +98,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 <img width="99" height="56" alt="leafeon1" src="https://github.com/user-attachments/assets/a47627e6-85af-4141-bc86-ce0328549e26" />
 <img width="99" height="56" alt="tumblr_46359c02a656ac67dab7d4603b914919_c3dc3572_100" src="https://github.com/user-attachments/assets/dff52656-e44a-4eb9-a9cb-f8045f317bfd" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/27bc26e6-1382-4408-adc4-886b4dee52ec" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e803cb52-e504-4ca1-aa4b-dcd36712cb4e" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e266ffeb-de74-451b-8c79-c327a32cda33" />
 
 
