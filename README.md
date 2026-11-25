@@ -103,6 +103,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/27bc26e6-1382-4408-adc4-886b4dee52ec" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e803cb52-e504-4ca1-aa4b-dcd36712cb4e" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e266ffeb-de74-451b-8c79-c327a32cda33" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/77136930-e334-4869-8444-41efdb7f2e81" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8a39d488-4dbf-40e9-88a1-1eb7d8fa8917" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f7d73ad1-07f5-4dd5-a2b7-06c86f89f309" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bc08bc5c-dd56-4227-b8a0-91875a23e07c" />
@@ -111,5 +112,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8b514308-5f9c-489e-96d0-52f7b2099955" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3cb26d06-a759-4e9a-a99b-6206381c23d6" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/107ff760-c821-4ca9-b1d1-aae6cad5f2c5" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/75eebbbc-9be3-4ae4-abcb-247ed1facdda" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67da11f8-607b-47d9-bb3b-71fe1736084a" />
 
 
