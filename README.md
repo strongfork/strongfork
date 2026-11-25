@@ -19,6 +19,7 @@ This is sort've still a WIP so uhh bear with me !
   
 ![stamp__i_love_my_boyfriend_by_pinoleny_d3dfq34-fullview](https://github.com/user-attachments/assets/acc25dca-94e4-48db-b4f2-61f78915cb1e)
 ![da0swma-644b6ffe-d3f9-4aa9-9ac2-bb5212525e2c](https://github.com/user-attachments/assets/fae60ed8-c9ad-49cc-943f-1c8398c1321a)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6904b44d-f9da-49be-91cc-b0264c98b450" />
 <img width="99" height="56" alt="sucktalking" src="https://github.com/user-attachments/assets/12c201b2-804a-4760-9bca-393bdc62bbe6" />
 ![d7tdpyp-7fb36620-7aea-448c-83e3-40ef3c57f808](https://github.com/user-attachments/assets/3e10c9b8-b43d-414f-9909-8f2a7cf383f2)
 ![dah84z5-d63560d3-834e-4c1a-a71e-4c9d250f3682](https://github.com/user-attachments/assets/f7148a43-d110-4583-8bc7-634f6c870c9f)
@@ -33,6 +34,7 @@ This is sort've still a WIP so uhh bear with me !
 ![my_little_pony__frie![d5082ta-6a8ea5e0-3c7b-4935-ac11-96737ec47a8a](https://github.com/user-attachments/assets/1c08eacc-cd19-4b02-ae01-ce2c7de5da1b)
 ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attachments/assets/d623eb28-8419-4110-a30c-fa24ea72a3eb)
 ![starlight_glimmer_by_marlenesstamps_d8seulf-fullview](https://github.com/user-attachments/assets/d0d616cf-6492-425b-b5cf-8bc9eada1333)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/51ac1644-9c38-4534-8927-b60f2b550894" />
 ![d624baj-a923f7a3-ad67-4a83-b1f0-ae47a46640d6](https://github.com/user-attachments/assets/1ad672c7-c1c7-4c31-8ea2-e568362a9272)
 ![tales_from_the_borderlands__stamp__by_wolvorineced_d89lapo-fullview](https://github.com/user-attachments/assets/7693e75a-c65f-41f8-8604-b7fca8442f3d)
 ![d624bxq-eee1e563-63b0-4647-8262-dfec97db9dc3](https://github.com/user-attachments/assets/f31e4e77-1299-4e31-9814-9760a29a0735)
@@ -96,9 +98,18 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 <img width="99" height="56" alt="adastamp2" src="https://github.com/user-attachments/assets/91a47304-3a73-43b6-9f32-bf16f53c0833" />
 <img width="99" height="56" alt="leafeon2" src="https://github.com/user-attachments/assets/7e3453ee-f11f-4f70-a5a0-10e5bbb9ad7b" />
 <img width="99" height="56" alt="leafeon1" src="https://github.com/user-attachments/assets/a47627e6-85af-4141-bc86-ce0328549e26" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/58f0d969-1e4c-4bc5-833a-84b6a0b6cec7" />
 <img width="99" height="56" alt="tumblr_46359c02a656ac67dab7d4603b914919_c3dc3572_100" src="https://github.com/user-attachments/assets/dff52656-e44a-4eb9-a9cb-f8045f317bfd" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/27bc26e6-1382-4408-adc4-886b4dee52ec" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e803cb52-e504-4ca1-aa4b-dcd36712cb4e" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e266ffeb-de74-451b-8c79-c327a32cda33" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8a39d488-4dbf-40e9-88a1-1eb7d8fa8917" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f7d73ad1-07f5-4dd5-a2b7-06c86f89f309" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bc08bc5c-dd56-4227-b8a0-91875a23e07c" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2507993d-4b45-4546-9b12-72ba697e02b3" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8bbee1fe-69ec-4fea-9774-8e67b33a767b" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8b514308-5f9c-489e-96d0-52f7b2099955" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3cb26d06-a759-4e9a-a99b-6206381c23d6" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/107ff760-c821-4ca9-b1d1-aae6cad5f2c5" />
 
 
